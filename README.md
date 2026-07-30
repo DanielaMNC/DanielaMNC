@@ -24,4 +24,4 @@ Currently, I'm studying and building projects with:
 
 ## Connect with me
 
-- LinkedIn: www.linkedin.com/in/daniela-caires
+- LinkedIn: https://www.linkedin.com/in/daniela-caires-5b2b19137/
